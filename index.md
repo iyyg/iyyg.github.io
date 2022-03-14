@@ -10,4 +10,4 @@
 ```
 <br/>
 <br/>
-### 智能[intelligence](https://yueyagao.github.io/intelligence/)
+### 智能  <a href="/intelligence.html">intelligence</a>
