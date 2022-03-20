@@ -4,6 +4,7 @@
 <br/>
 ### 标签
 ```markdown
-我们不能选择自己爱的人
+我们不能选择自己爱的人，
+[但我们仍然可以爱](https://www.bilibili.com/video/BV1UU4y1p71r/?spm_id_from=333.788.recommend_more_video.0)
 ```
 ### 工作  <a href="/intelligence.html">intelligence</a>
