@@ -89,7 +89,6 @@ Hello there, life is always better than you can image.
 ### 2022.03.30
 人活着本来就没有什么意义，但只有活下去，才能找到有趣的事物…就像你找到了这朵花，就像我找到了你————大蛇丸<br/>
 如果你想将温柔变成力量，就要找到人性当中隐约闪耀的神性<br/>
-[视频链接](https://www.bilibili.com/video/BV1ei4y1r7fg?spm_id_from=333.851.b_7265636f6d6d656e64.1)
 <br/>
 ### 2022.03.31
 我遵循理性良久，并用了很多方案排斥宿命论。但是爱情这件事，好像只能是命中注定。恰如蓦然回首，灯火阑珊。不是命中注定的在一起，而是就是有一个人很合适你，“灵魂”能与你同步。只是你要努力抓住每一个可能的线索，然后找下去，最后，柳暗花明。<br/>
@@ -914,6 +913,8 @@ Hello there, life is always better than you can image.<br/>
 明明知道不会下雪还是有点儿期待。<br/>
 <br/>
 
-### 2022
-
+### 2023.01.22
+我累吗？不，我一点儿也不累。我很清醒，并且充满活力。我没有前行，因为我不知道要走哪条路，或者说该向哪里走。<br/>
+[我已经在路上了](https://www.bilibili.com/video/BV1t14y1e7Si/?spm_id_from=333.788.top_right_bar_window_default_collection.content.click&vd_source=effa3037f2ebd84f9be153bd4faa31dc)<br/>
+【“再熬一熬，枯坐比久睡要好”】 https://www.bilibili.com/video/BV1t14y1e7Si/?share_source=copy_web&vd_source=09febb5bfd6375798724395a01f8ce59
 
