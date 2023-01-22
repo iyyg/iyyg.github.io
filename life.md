@@ -935,6 +935,14 @@ Hello there, life is always better than you can image.<br/>
 文字是多种多样的。可是我认为最不可思议、最有力量的是这三种：善良的，干净的和真实的。<br/>
 <br/>
 
+### 2023.01.21
+人工智能可以储存和应用辩证法吗？<br/>
+我不能说不行。<br/>
+人类能接受这样的工具吗？<br/>
+我不能说可以。<br/>
+不过，谁能就这么说了算呢？<br/>
+<br/>
+
 ### 2023.01.22
 我累吗？不，我一点儿也不累。我很清醒，并且充满活力。我没有前行，因为我不知道要走哪条路，或者说该向哪里走。<br/>
 [我已经在路上了](https://www.bilibili.com/video/BV1t14y1e7Si/?spm_id_from=333.788.top_right_bar_window_default_collection.content.click&vd_source=effa3037f2ebd84f9be153bd4faa31dc)<br/>
