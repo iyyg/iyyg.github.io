@@ -879,6 +879,16 @@ Hello there, life is always better than you can image.<br/>
 为什么要写那么多悲剧呢？因为这就是人们的生活。<br/>
 <br/>
 
+### 2022.11.19
+学习科学救不了人类。<br/>
+你学任何东西，都是有用的，发觉它们有力量。可是力量总是有限的。最终为了寻求力量，只有两条出路：哲学和毁灭力量。<br/>
+让我们一起来剿杀劣质资本吧。<br/>
+<br/>
+
+### 2022.11.20
+孩子们是未来，可是决定未来的不是它们，而是三十岁到五十岁，还有二十岁和六十岁的这群人。不要找借口逃避责任，这么多不得已几分真几分假自己最清楚。<br/>
+<br/>
+
 ### 2022.11.27
 当你自视过高，就将危机四伏。<br/>
 <br/>
@@ -913,8 +923,20 @@ Hello there, life is always better than you can image.<br/>
 明明知道不会下雪还是有点儿期待。<br/>
 <br/>
 
+### 2023.01.05
+我为了避免简单的事情复杂化，将很多复杂的事情简单化了。为了避免追求的太多反而舍弃了太多。<br/>
+<br/>
+
+### 2023.01.15
+人是历史的，而不是梦的，材料。<br/>
+——《四世同堂》<br/>
+
+### 2023.01.20
+文字是多种多样的。可是我认为最不可思议、最有力量的是这三种：善良的，干净的和真实的。<br/>
+<br/>
+
 ### 2023.01.22
 我累吗？不，我一点儿也不累。我很清醒，并且充满活力。我没有前行，因为我不知道要走哪条路，或者说该向哪里走。<br/>
 [我已经在路上了](https://www.bilibili.com/video/BV1t14y1e7Si/?spm_id_from=333.788.top_right_bar_window_default_collection.content.click&vd_source=effa3037f2ebd84f9be153bd4faa31dc)<br/>
-【“再熬一熬，枯坐比久睡要好”】 https://www.bilibili.com/video/BV1t14y1e7Si/?share_source=copy_web&vd_source=09febb5bfd6375798724395a01f8ce59
 
+### 2023.
