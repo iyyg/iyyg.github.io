@@ -592,7 +592,7 @@ Hello there, life is always better than you can image.<br/>
 <br/>
 
 ### 2022.08.18
-[github.com/ProletRevDicta/Prolet](github.com/ProletRevDicta/Prolet)<br/>
+[你猜网址是什么？]
 （因为是github的网站，所以不太稳定。不需要翻墙就可以直接看，但是需要多试几次）<br/>
 <br/>
 刚刚在找76年的社会主义政治经济学，找到了一个很神奇的网站，有兴趣可以看看.我从不念旧，也不喜欢左，但是如果要守护共产主义理想，就要拿出该有的意志。<br/>
