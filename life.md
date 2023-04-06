@@ -947,4 +947,11 @@ Hello there, life is always better than you can image.<br/>
 我累吗？不，我一点儿也不累。我很清醒，并且充满活力。我没有前行，因为我不知道要走哪条路，或者说该向哪里走。<br/>
 [我已经在路上了](https://www.bilibili.com/video/BV1t14y1e7Si/?spm_id_from=333.788.top_right_bar_window_default_collection.content.click&vd_source=effa3037f2ebd84f9be153bd4faa31dc)<br/>
 
-### 2023.
+### 2023.02.21
+我想要的太多，不能全部得到。那些被放弃了的，我也就没有资格缅怀。<br/>
+一条没有人走的路，自然没有意义。<br/>
+
+## 问题
+因为国内网络问题，很多时候用github不方便，所以将终止此博客，转到其他地址。
+
+# THE END
