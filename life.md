@@ -12,8 +12,9 @@ The further back you pull, the more of that truth you'll endure
 Hello there, life is always better than you can image.
 --2022.04.24
 世界上任何值得追求之物的极致都是美，都为人所吸引，都可称为艺术。科学就是关于真相的艺术，工程就是关于创造的艺术。
-——2022.09.08
-```
+--2022.09.08
+如果你想将温柔变成力量，就要找到人性当中隐约闪耀的神性
+--2022.03.15
 <br/>
 <br/>
 
