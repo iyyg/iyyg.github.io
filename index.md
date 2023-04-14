@@ -4,6 +4,7 @@
 <br/>
 ### 标签
 人性中升华的神性，就是用人性的光辉温暖人性的炎凉。<br/>
+This is true: stories save and can save us.<br/>
 <br/>
 
 <a href="https://yueyagao.github.io/"><button>工作空间<br/>WorkSapce</button></a>
