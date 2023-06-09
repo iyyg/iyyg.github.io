@@ -1,21 +1,9 @@
-## Welcome to Yue Yagao's WorkSpace
-创建日期2022.03.14，使用邮箱yueyagao@nuaa.edu.cn<br/>
-终止日期2023.02.21。<br/>
+## Welcome to IYYG's notespace
 <br/>
+
 ### 标签
 人性中升华的神性，就是用人性的光辉温暖人性的炎凉。<br/>
 This is true: stories save and can save us.<br/>
-<br/>
-
-<a href="https://yueyagao.github.io/"><button>工作空间<br/>WorkSapce</button></a>
-### 个人信息
-    姓名：岳亚高
-    性别：男
-    出生年月：2002.11
-    籍贯：河南省滑县
-    学历：在读本科生
-    学校：南京航空航天大学
-    邮箱：saluzifengyueti@outlook.com
 <br/>
 
 ## 子域空间
