@@ -9,9 +9,6 @@ This is true: stories save and can save us.<br/>
 ## 子域空间
 <br/>
 
-### 生活    <a href="/life.html">生活空间</a>
-<br/>
-
     2020.08.25
     来日方长，江湖再见
     
@@ -35,17 +32,4 @@ This is true: stories save and can save us.<br/>
 ### 诗词    <a href="/poem.html">诗词空间</a>
 <br/>
 
-### 散文    <a href="/literature.html">文学空间</a>
-<br/>
 
-### 兴趣    <a href="/interest.html">爱好空间</a>
-<br/>
-<br/>
-
-## 工作台
-<br/>
-
-### 工作  <a href="/intelligence.html">intelligence</a>
-<br/>
-
-### 芍       <a href="/peony.html">peony</a>
